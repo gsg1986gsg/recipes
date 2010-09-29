@@ -16,6 +16,7 @@ Ingredients:
 * 4 tablespoons of water
 * 1 ripe bananas
 * 1/2 cup soy milk
+* 1 lbs of raw beef
 
 Sift together the flour, baking powder, sugar and cinnamon. 
 Peel the oranges. Blend together bananas and mandarin oranges until pureed. 
